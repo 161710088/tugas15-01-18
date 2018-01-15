@@ -1,0 +1,1 @@
+<center><hr>Copyright &copy; 2018 Made By &hearts; Ahmad Fauzi Sawandhani &hearts; </center></hr></center>
